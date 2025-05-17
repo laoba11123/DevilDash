@@ -1,5 +1,7 @@
 # Devil Dash: Run Through Hell in This Hardcore Dash Game
 
+👉 **Play now:** [https://nowgames.net/game/devil-dash](https://nowgames.net/game/devil-dash?utm_source=laoba11123)
+
 **Welcome to Hell. Are you fast enough to escape?**  
 **Devil Dash** is an intense, **fast-paced platformer** that challenges your reflexes, patience, and maybe even your sanity. If you're a fan of brutally difficult games with stylish visuals and adrenaline-pumping gameplay, Devil Dash is your next obsession.
 
